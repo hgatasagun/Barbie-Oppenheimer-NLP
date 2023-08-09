@@ -1,3 +1,4 @@
+
 # The Enchanting Dilemma: ‘Barbie’ or ‘Oppenheimer’?
 
 Please check my Medium post.
